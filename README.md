@@ -1,6 +1,6 @@
 ### Hi there 👋
 # 💫 About Me:
-👨‍💻Sajjad Azam | Final year CS student | Chennai | Revved up by coding and autos 🚗
+👨‍💻Sajjad Azam |MSC Student and CS graduate | DXB
 
 
 ## 🌐 Socials:
